@@ -1,1 +1,0 @@
-# Masalalar-Qudrat-Abdurahimov
